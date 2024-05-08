@@ -1,7 +1,7 @@
 ### Hallo Leute!! 👋
 
 - 🔭 I’m currently studying
-- 🌱 I’m currently learning IT
+- 🌱 I’m learning IT
 - 👯 I’m looking to collaborate with this industry
 - 🤔 I’m looking for help with all-tech related subjects
 - 💬 Ask me about my songs
