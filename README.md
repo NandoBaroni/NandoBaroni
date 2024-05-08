@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate with this industry
 - 🤔 I’m looking for help with all-tech related subjects
 - 💬 Ask me about my songs
-- 📫 How to reach me: By email
+- 📫 How to reach me: By email or Whatsapp
 - 😄 Pronouns: There are a lot of pronouns, this is a waste of time.
 - ⚡ Fun fact: Universally speaking, we are not that important, irrelevant as species I would say. Life happens fast.
 
