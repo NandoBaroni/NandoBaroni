@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hallo Leute!! 👋
 
 - 🔭 I’m currently studying
 - 🌱 I’m currently learning IT
