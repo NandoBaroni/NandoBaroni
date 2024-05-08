@@ -3,7 +3,7 @@
 - 🔭 I’m currently studying
 - 🌱 I’m learning IT
 - 👯 I’m looking to collaborate with this industry
-- 🤔 I’m looking for help with all-tech related subjects
+- 🤔 I’m looking for help with all-tech trends and IT related subjects
 - 💬 Ask me about my songs
 - 📫 How to reach me: By email or Whatsapp
 - 😄 Pronouns: There are a lot of pronouns, this is a waste of time.
