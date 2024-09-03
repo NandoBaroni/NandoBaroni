@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently studying
 - 🌱 I’m learning IT
-- 👯 I’m looking to collaborate with this industry
+- 👯 I’m looking forward to collaborate with this industry
 - 🤔 I’m looking for help with all-tech trends and IT related subjects
 - 💬 Ask me about my songs, tell me unusual jokes, feel comfortable, we can be weird together
 - 📫 How to reach me: By email or Whatsapp, but 'm not gonna lie: Answering phones is not my forte (I'm partially deaf).
