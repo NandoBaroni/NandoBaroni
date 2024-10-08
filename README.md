@@ -1,6 +1,6 @@
 ### Hallo Leute!! 👋
 
-- 🔭 I’m currently studying (with ChatGPT's help)
+- 🔭 I’m currently studying (with MDN, W3 SChools and ChatGPT's help)
 - 🌱 I’m learning IT
 - 👯 I’m looking forward to collaborate with this industry
 - 🤔 I’m looking for help with all-tech trends and IT related subjects
