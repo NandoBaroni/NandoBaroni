@@ -9,7 +9,8 @@
 
 Things I love and cannot afford (for now) below =P I already possess one
 
-https://blog.sweelee.com/uploads/2023/03/fender-guitar-guide-lineups-explained-2023-banner@1200x630.jpg
+
+![fender-guitar-guide-lineups-explained-2023-banner@1200x630](https://github.com/user-attachments/assets/ce6ab058-9c64-41f2-8bbf-cf0ac53178e5)
 
 
 <!--
