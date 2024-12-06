@@ -9,7 +9,7 @@
 
 Things I love and cannot afford (for now) below =P I already possess one
 
-[![70th_Anniversary_Group_1](https://github.com/NandoBaroni/NandoBaroni/assets/169039071/b163bdd4-b25d-411a-a711-06451cf27557)](https://blog.sweelee.com/uploads/2023/03/fender-guitar-guide-lineups-explained-2023-banner@1200x630.jpg)
+https://blog.sweelee.com/uploads/2023/03/fender-guitar-guide-lineups-explained-2023-banner@1200x630.jpg
 
 
 <!--
