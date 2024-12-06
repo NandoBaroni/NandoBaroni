@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with all-tech trends and IT related subjects
 - 💬 Ask me about my songs, tell me unusual jokes, feel comfortable, we can be weird together
 - 📫 How to reach me: By email or Whatsapp, but I'm not gonna lie: Answering phones is not my forte (I'm partially deaf and I use hearing aid), so avoid the audio approach, messages work better.
-- So, to prepare you: ADHD and Tinnitus are my partners in life.
+- So, to prepare you: ADHD and Tinnitus are my partners in life...don't feel disappointed, I'll do my best to communicate with you.
 
 Things I love and cannot afford (for now) below =P I already possess one, but each kind has its own sound personality.
 
