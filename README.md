@@ -1,6 +1,6 @@
 ### Hallo Leute!! 👋
 
-- 🔭 I’m currently studying in DCI - Digital Career Institute + MDN, W3 SChools and ChatGPT's help)
+- 🔭 I’m currently studying in the Spiced Academy + MDN, W3 SChools and ChatGPT's help)
 - 🌱 I’m learning IT
 - 👯 I’m looking forward to collaborate with this industry
 - 🤔 I’m looking for help with all-tech trends and IT related subjects
