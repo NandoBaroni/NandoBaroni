@@ -1,6 +1,6 @@
 ### Hallo Leute!! 👋
 
-- 🔭 I’m currently studying in the Spiced Academy + MDN, W3 SChools and ChatGPT's help
+- 🔭 I’m currently studying in the Spiced Academy + Udemy, MDN, W3 Schools and ChatGPT's help
 - 🌱 I’m learning IT
 - 👯 I’m looking forward to collaborate with this industry
 - 📫 How to reach me: By email or Whatsapp, please avoid the audio approach, messages work better.
